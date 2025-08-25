@@ -44,4 +44,4 @@
 ---
 
 ## 📫 ติดต่อผม
-- 📧 Email: your-email@example.com
+- 📧 Email: porames.sukrod@gmail.com
